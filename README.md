@@ -1,0 +1,1 @@
+# Laborat-rio-de-Intelig-ncia-Artificial-e-Vis-o-Computacional
